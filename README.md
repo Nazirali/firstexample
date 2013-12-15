@@ -1,2 +1,2 @@
-Read me file added bu Nazir
+Read me file added by Nazir
 123
